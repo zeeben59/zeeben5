@@ -50,8 +50,8 @@
 
 ## 📞 Contact Me
 
-- 📧 Email: your-email@example.com  
-- 💬 WhatsApp: your-number  
+- 📧 Email: monwubabenedict07@gmail.com  
+- 💬 https://wa.me/+2347066313789
 
 ---
 
